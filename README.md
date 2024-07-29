@@ -6,7 +6,7 @@ Link:
 https://www.krea.ai/home
 
 Veja Também no Youtube uma história real onde eu utilizo imagens Avatar com um conteúdo real.
-Trabalhando como criador de conteúdos para Youtuve, me procuro, manter informado sobre tudo que gira em torno da IA.
+Trabalhando como criador de conteúdos para Youtuve, procuro, manter informado sobre tudo que gira em torno da IA.
 Plataformas que já utilizo algum tempo:
 https://chatgpt.com/
 https://copilot.microsoft.com/
